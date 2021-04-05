@@ -19,3 +19,6 @@ iphone 12
 iphone 12mini
 iphone 12pro
 iphone 12max
+hsdhghdh
+donr 
+final
